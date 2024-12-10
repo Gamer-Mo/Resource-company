@@ -1,0 +1,1 @@
+this game is for entertainiment purposes only do not use for malicious intent or purposes, you may distribute, do not say that Gamer-Mo is not the original creator, credits to the creator(s) of space company for the idea
